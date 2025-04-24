@@ -3,6 +3,7 @@
     </a>
     Mav / Maverick 
     <p>click on links for my about me</p>
+    ⛔ mostly on this one, IWEC 🌙offtab 💬looking for chat 🟢 never use 
 
 ![Image](https://github.com/user-attachments/assets/34e830f2-6512-40ce-bc88-6bb2de4258e9)
 
