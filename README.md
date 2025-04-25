@@ -1,8 +1,10 @@
  <p align="center">
   <h4 align="center"
     </a>
+<img src="https://vashplush.com/wp-content/uploads/2023/04/vash-plush.jpg" class="fr-fic fr-dib" width="380" height="344.712">
+ 
     Mav / Maverick 
-    <p>click on links for my about me</p>
+    click on links for my about me
     ⛔ the one i use mainly, IWEC, i'm afk mostly 🌙away from my screen 💬looking for chat 🟢 never use 
     
 
