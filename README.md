@@ -4,6 +4,7 @@
 <img src="https://vashplush.com/wp-content/uploads/2023/04/vash-plush.jpg" class="fr-fic fr-dib" width="380" height="344.712">
    <P></P>
  IF YOU SEE MY SKINS POSTED ANYWHERE BUT HERE ON THIS GITHUB OR BEING LINKED TO ANYWHERE BUT THIS GITHUB IT IS NOT ME !! PLS ALERT ME MY STUFF WAS STOLEN ! ( MY SKINS ARE NOT F2U DO NOT USE THEM) 
+   <p></p>
     Mav / Maverick 
     click on links for my about me
     ⛔ the one i use mainly, IWEC, i'm afk mostly 🌙away from my screen 💬looking for chat 🟢 never use 
