@@ -1,13 +1,9 @@
- <p align="center">
+<p align="center">
   <h4 align="center"
     </a>
-<img src="https://vashplush.com/wp-content/uploads/2023/04/vash-plush.jpg" class="fr-fic fr-dib" width="380" height="344.712">
-   <P></P>
- IF YOU SEE MY SKINS POSTED ANYWHERE BUT HERE ON THIS GITHUB OR BEING LINKED TO ANYWHERE BUT THIS GITHUB , OR MY PATREON,  IT IS NOT ME !! PLS ALERT ME MY STUFF WAS STOLEN ! ( MY SKINS ARE NOT F2U DO NOT USE THEM) 
-   <p></p>
-    Mav / Maverick 
-    click on links for my about me
-    ⛔ the one i use mainly, IWEC, i'm afk mostly 🌙away from my screen 💬looking for chat 🟢 never use 
-    
 
-![Image](https://github.com/user-attachments/assets/34e830f2-6512-40ce-bc88-6bb2de4258e9)
+[Draw on my strawpage](https://mavstrawpage.straw.page/)
+
+<img width="648" height="1308" alt="Image" src="https://github.com/user-attachments/assets/a2fe6a33-0f3c-44c2-ae57-9b695b0ebb18" />
+
+Mav / Maverick click on links for my about me ⛔ the one i use mainly, IWEC, i'm afk mostly 🌙away from my screen 💬looking for chat 🟢 never use
