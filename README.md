@@ -1,9 +1,10 @@
 <p align="center">
   <h4 align="center"
     </a>
-    
-[Draw on my strawpage](https://mavstrawpage.straw.page/)
-c+h always welcomed!! pls pls c+h me
+  
+  ![Image](https://github.com/user-attachments/assets/fc74032e-1922-4171-b0bc-75814c1dc6d3)  
+
+c+h always welcomed!! pls pls c+h me.
 i selfship with these characters:
 poe (bsd)
 Nikolai (bsd)
